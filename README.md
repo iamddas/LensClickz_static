@@ -1,0 +1,1 @@
+# LensClickz_static
